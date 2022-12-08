@@ -9,9 +9,9 @@
 
 - 🌱 I’m currently learning **Cooking😁**
 
-- 👨‍💻 All of my projects are available at [Im sorry i just working on testnet]
+- 👨‍💻 Crypto Enthusiast & Investor, Crypto Promoter, Web3 Enthusiast, Crypto Community Manager, Holder of #Bitcoin #BNB Founder of https://t.me/freakingrich
 
-- 📝 I regularly write articles on [Under maintenance]
+- 📝 Crypto Donation for me here [0x4068643B196029f1Aa8707853b3aaE0f8a95739A] or [denditramadhan11@gmail.com] on Binance
 
 - 💬 Ask me about **Anything you want**
 
