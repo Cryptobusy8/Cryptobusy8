@@ -6,7 +6,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=cryptobusy8" alt="cryptobusy8" /></a> </p>
 
-<p align="left"> <a href="https://twitter.com/https://twitter.com/derilramadhan" target="blank"><img src="https://img.shields.io/twitter/follow/https://twitter.com/derilramadhan?logo=twitter&style=for-the-badge" alt="https://twitter.com/derilramadhan" /></a> </p>
+<p align="left"> <a href="https://twitter.com/derilramadhan" target="blank"><img src="https://img.shields.io/twitter/follow/https://twitter.com/derilramadhan?logo=twitter&style=for-the-badge" alt="https://twitter.com/derilramadhan" /></a> </p>
 
 - 🌱 I’m currently learning **Cooking😁**
 
