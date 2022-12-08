@@ -10,15 +10,15 @@
 
 - 🌱 I’m currently learning **Cooking😁**
 
-- 👨‍💻 All of my projects are available at [Im sorry i just working on testnet](Im sorry i just working on testnet)
+- 👨‍💻 All of my projects are available at [Im sorry i just working on testnet]
 
-- 📝 I regularly write articles on [Under maintenance](Under maintenance)
+- 📝 I regularly write articles on [Under maintenance]
 
 - 💬 Ask me about **Anything you want**
 
 - 📫 How to reach me **denditramadhan11@gmail.com**
 
-- 📄 Know about my experiences [Just check my twitter here https://twitter.com/derilramadhan](Just check my twitter here https://twitter.com/derilramadhan)
+- 📄 Know about my experiences [Just check my twitter here https://twitter.com/derilramadhann]
 
 - ⚡ Fun fact **Im happy because you happy**
 
