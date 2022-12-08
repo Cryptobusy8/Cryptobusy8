@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **denditramadhan11@gmail.com**
 
-- 📄 Know about my experiences [Just check my twitter here https://twitter.com/derilramadhann]
+- 📄 Earn money with me here [https://t.me/freakingrich]
 
 - ⚡ Fun fact **Im happy because you happy**
 
